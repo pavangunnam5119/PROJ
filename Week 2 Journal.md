@@ -1,0 +1,5 @@
+# Journal for week 2
+
+During this week, due to some unforeseen circumstances, three out of four members of my group had to reschedule their class to another session and I was not in a position to schedule my class at the same time as the rest. So, I had to join another group that already had 4 members. They were also planning to work on MDS. So, all the effort I put into documenting what needs to be done for the project didn’t go in vain. I introduced myself to the rest of the team and we got straight to work. 
+
+In this week, we laid the ground-work for the project.  We discussed how often we would meet to discuss our progress, what steps we should take when a conflict occurs, who is responsible for organizing meetings, etc. We also had agreed to create a project plan in the next week. I revised the course contents of PPMP 20007 to refresh my memory on how to plan projects. 
